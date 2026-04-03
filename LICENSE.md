@@ -1,4 +1,4 @@
-
+ink game rare Scripts Free: auto-win & inf-ink brings you the best free scripts for ink game, featuring auto-win and inf-ink. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
